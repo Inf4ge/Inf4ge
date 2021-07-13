@@ -6,4 +6,4 @@
 ![tas](https://user-images.githubusercontent.com/69483795/125485302-7b4d7505-2621-4913-943c-db0be7ffd883.gif)
 ![amogas](https://user-images.githubusercontent.com/69483795/125485306-77fb8e56-8f3d-4d23-8186-f330a106f452.gif)
 
-xXxproForNitgMerXxX my ninck plsd add me and invit to fornit!!!
+xXxproForNitgMerXxX my ninck plsd add me and invit to fornit!!
